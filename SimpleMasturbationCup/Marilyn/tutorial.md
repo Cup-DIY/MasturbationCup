@@ -10,17 +10,17 @@
 
 
 #### 1，医用橡胶手套 x 1
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/0.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/0.png)
 
 医用橡胶手套可以在药店买到，不建议使用超市的普通橡胶手套，普通手套没有医用手套柔软，也没有医用手套卫生安全。
 
 #### 2，水果防震网套 若干
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/1.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/1.png)
 
 又叫**泡沫网**、**发泡网袋**，水果店里有很多，买水果的时候顺便拿一些。
 
 #### 3，塑料瓶
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/2.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/2.png)
 
 任何合适大小的瓶子都可以，但是注意清洗干净
 
@@ -32,24 +32,24 @@
 
 #### 1，制作套筒
 将瓶子底切掉，取一段合适长度的瓶身，长度跟据你的尺寸来
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/3.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/3.png)
 
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/4.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/4.png)
 
 #### 2，制作内衬
 将水果网套像这样套起来，把橡胶手套套在里面
 
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/5.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/5.png)
 
 套多少个需要根据瓶子大小来决定
 
 #### 3，组装
 
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/6.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/6.png)
 
 把内衬塞到套筒里
 
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/7.jpg)
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/7.png)
 
 用绳子捆好，一个飞机杯就做好了，加入润滑剂（可以用润肤露等代替）就可以使用了
 
