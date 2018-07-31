@@ -25,7 +25,6 @@
 任何合适大小的瓶子都可以，但是注意清洗干净
 
 #### 4，绳子
-![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/3.jpg)
 
 任何绳子都可以
 
@@ -33,6 +32,8 @@
 
 #### 1，制作套筒
 将瓶子底切掉，取一段合适长度的瓶身，长度跟据你的尺寸来
+![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/3.jpg)
+
 ![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/4.jpg)
 
 #### 2，制作内衬
@@ -42,7 +43,7 @@
 
 套多少个需要根据瓶子大小来决定
 
-#### 3，合体、完成
+#### 3，组装
 
 ![image](https://github.com/Cup-DIY/MasturbationCup/blob/master/SimpleMasturbationCup/Marilyn/6.jpg)
 
